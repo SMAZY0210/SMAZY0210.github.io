@@ -1,0 +1,1 @@
+# SMAZY0210.github.io
